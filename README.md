@@ -1,4 +1,4 @@
-## <h1 align="center">Hi 👋, I'm Yash Ghori</h1>
+## <h1 align="center">Hi 👋, I'm Jay Golakiya</h1>
 
 [![](https://visitcount.itsvg.in/api?id=yashghori&icon=0&color=1)](https://visitcount.itsvg.in)
 
